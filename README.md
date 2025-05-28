@@ -4,9 +4,13 @@ I speak ITA and ENG, and currently trying to learn RUS and PT-BR
 
 About PonyTown : Feel free to interact w me! I like chatting about anything really, I'm ok with any questions too
 I may be a bit awkward in the beginnin 'cause I'm really anxious/shy, and I'm not great at keeping convos going :')
--> I won't share socials with anyone below 16/17
+
+I won't share socials with anyone below 16/17
 
 PonyTown status meaning :
+
 -> Online/Looking For Chat = feel free to chat w me
+
 -> Away = I'm probably off-tab, whisper to me and I'll reply if I see it =)
+
 -> Busy = Sometimes I use it if I'm off-tab, doing something OR if I'm on my isle and wanna be left alone
